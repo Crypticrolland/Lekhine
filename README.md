@@ -1,1 +1,0 @@
-Welcome come to chegosdigitalworks this is our first webpage with some of the cryptocoins experienced by Crypticrolland in the department of crypto currency exploration. This is for you to explore and expand. 
